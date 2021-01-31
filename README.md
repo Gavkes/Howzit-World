@@ -1,2 +1,2 @@
 # Howzit-World
-Just saying hello
+Just saying hello to everyone
